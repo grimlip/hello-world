@@ -1,7 +1,3 @@
-# hello-world
-my trip
+farseeing poetica
 
-i'm a hippie and as hippies do
-i write my literature in code
-free for everyone to see
-if anyone cared to read
+Title is question posed to teacher. One translates answer. Draw flowers for her every time. She eats them every time. She likes when one gets puny. She dislikes one calling her she. One wants to kiss her. She’ll let one as much as to draw her make love to herself.
